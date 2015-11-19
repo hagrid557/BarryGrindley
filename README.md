@@ -1,2 +1,0 @@
-# BarryGrindley
-RGU Srudent Access
